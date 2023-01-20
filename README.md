@@ -7,6 +7,6 @@
 - 💬 Me pergunte sobre trabalho!
 - 📫 Fale comigo - jan.veneziani@me.com
 - 😄 Ela / She / Ella
-- ⚡ Adoro esportes, sou professora de yoga e tenho 3 gatos.
+- ⚡ Adoro esportes, sou instrutora de yoga e tenho 3 gatos.
 
 ##### <a href="http://linkedin.com/janveneziani">LinkedIn</a>
